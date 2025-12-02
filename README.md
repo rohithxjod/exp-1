@@ -24,12 +24,11 @@
 
 <img width="520" height="416" alt="image" src="https://github.com/user-attachments/assets/c8e67646-bb9d-4bf3-a4c9-6ba57b0d80f3" />
 
-## Tabulation
-![WhatsApp Image 2025-11-28 at 22 05 11_97dea96f](https://github.com/user-attachments/assets/e3db97ea-0e19-46ae-b7e7-faa4b2366629)
 
 
 ## Graph
-![WhatsApp Image 2025-11-28 at 22 06 41_9237c3e7](https://github.com/user-attachments/assets/ba70eb9e-679f-4b8a-85f9-ea58bca8edc9)
+![WhatsApp Image 2025-12-02 at 12 43 49_74c9088a](https://github.com/user-attachments/assets/c07181bd-9a2e-4641-bdee-fec90862264f)
+
 
 
 
